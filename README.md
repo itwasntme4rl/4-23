@@ -1,1 +1,3 @@
-# 4-23
+**Summary:**
+
+This is the personal journey of a young person reflecting on their life from 2021 to 2025. It details the struggles of adolescence, including battling anxiety, addiction, and relationships, especially with a girl named Julie. The story reveals how substances, such as smoking, played a significant role in coping with emotional pain, but also led to personal turmoil. Over time, the narrator faces challenges with school, friendship, and mental health while trying to find redemption. Ultimately, the journey takes a turn toward sobriety and seeking a better life, guided by faith, love, and the hope for a brighter future. Along the way, the narrator expresses a deep desire to fix their life and make things right with Julie, striving to build a stronger and healthier relationship with her.
